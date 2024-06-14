@@ -1,1 +1,9 @@
 # Projeto-3B
+
+MEU NOME É NAYARA VITORIA
+
+EU ESTUDO NO EE NERCY
+EU VOU USAR O ESPAÇO PARA O MEU ESTUDO PESSOAL
+EU FAÇO ALURA
+
+![](https://media1.tenor.com/m/LRDMe1QpqFYAAAAC/cat-cute.gif)
